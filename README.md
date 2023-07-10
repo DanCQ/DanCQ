@@ -1,4 +1,4 @@
-I'm currently back to studying, this upgrades my skill level & ideas. 
+I'm back to studying, to upgrade my skill level & ideas. 
 
 ![](https://komarev.com/ghpvc/?username=DanCQ&color=orange&style=plastic&label=View+Counter)
 
