@@ -1,5 +1,3 @@
-I'm back to studying, to upgrade my skill level & ideas. 
-
 ![](https://komarev.com/ghpvc/?username=DanCQ&color=orange&style=plastic&label=View+Counter)
 
 [![](https://raw.githubusercontent.com/DanCQ/DanCQ/master/profile-summary-card-output/noctis_minimus/0-profile-details.svg)](https://github.com/vn7n24fzkq/github-profile-summary-cards)
